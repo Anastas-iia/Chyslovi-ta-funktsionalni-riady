@@ -1,0 +1,1 @@
+# Chyslovi-ta-funktsionalni-riady
